@@ -1,4 +1,6 @@
-About Us
+**About Us**
+
+
 We connect farmers with customers directly and help farmers to sell their products directly to the customers. Both the farmers and customers will benefit.
 We help customers to get pure products from the farmers directly. Farmers can also consult agricultural scientists for better suggestions to get a good yield without any loss. 
 Here we provide advanced farming tools to the farmers. Farmers can also post pictures when the crop is affected to find a solution.
